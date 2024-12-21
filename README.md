@@ -1,1 +1,1 @@
-# [hftzphas.pw](https://hftzphas.pw)
+# [hafitz.eu.org](https://hafitz.eu.org)
